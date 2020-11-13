@@ -1,0 +1,5 @@
+Le Poulet Du Francois is a French dish, first mastered by the renowned chef, Sausageexpert, making it the first classical French dish to have an Indian remix to it. It was first made in the 1800's, when Super Sausages, my restaurant in Vienna, first released it on the menu. On a side note, yes, I am that old, but that's not the point.
+
+Anyway, when the dish was first released, it was a massive success ! The President himself was served the dish and recommended it to the President of the USA, during a conference on terrorism. Needless to say, the dish attained worldwide success after that incident
+
+Today, you will be cooking my famous dish, using only the ingredients you absolutely need (I'm a firm believer of no-waste cooking). Remember, the dish is ALL ABOUT BALANCE ! Too acidic, too basic, too sweet, too salty, and the dish is ruined.... Enough history now, good luck !
